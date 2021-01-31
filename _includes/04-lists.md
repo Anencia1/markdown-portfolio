@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+👇 TMy favorites.
+
+1. :heart: Ice cream
+1. :heart: Briyani
+1. :heart: Snitzel
